@@ -2,6 +2,6 @@
 
 Ceci est le github du compte rendu de TP de c++ de Bienvenu Elie et Baptiste Lesquerre
 
-On aime beaucoup le prof et on éspaire qu'il seras gentil avec nous
+On aime beaucoup le prof et on espère qu'il seras gentil avec nous
 
-Vous etes le meilleur M. Ginhac <3
+Vous êtes le meilleur M. Ginhac <3
