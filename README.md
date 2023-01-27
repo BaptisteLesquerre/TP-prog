@@ -8,4 +8,4 @@ Il est conseillé de télécharger le PDF afin de pouvoir cliquer sur les liens 
 
 On aime beaucoup le prof et on espère qu'il seras gentil avec nous
 
-Vous êtes le meilleur M. Ginhac ( ˘ ³˘)♥
+Vous êtes le meilleur M. Ginhac ♥
